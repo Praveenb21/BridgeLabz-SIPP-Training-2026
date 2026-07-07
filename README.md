@@ -1,1 +1,1 @@
-# BridgeLabz-SIPP-Training-2026
+# SIPP 2026
